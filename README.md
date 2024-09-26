@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Adib Putra Pradipta
 
-NIM : 
+NIM : 607062400082
 
 ## Instruksi
 
